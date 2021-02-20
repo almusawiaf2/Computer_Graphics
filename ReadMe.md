@@ -9,3 +9,5 @@
 السلام عليكم
 يمكنكم تحميل البرنامج متكاملا عبر النقر على زر التحميل
 Download ZIP
+
+https://www.youtube.com/watch?v=vLYYxsTQEx0&feature=emb_logo
